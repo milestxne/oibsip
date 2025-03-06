@@ -27,4 +27,4 @@ RECOMMENDATIONS:
 
 - Newer kinds of Electronics could be added to the inventry to increase Total amount spent.
 
-- Adequate ads campaigns about different items and promo could also be employed during the new years to drive up traffic.
+- Promotional campaigns could also be strategically implemented during the New Year's period to drive increased traffic and engagement.
